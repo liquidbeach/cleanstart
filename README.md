@@ -58,7 +58,7 @@ For:
 - Advanced dashboards
 - Private installations
 
-➡️ Visit my Upwork profile and hire me via [CleanStart Project Catalog](https://www.upwork.com/freelancers/your-profile)
+➡️ Visit my Upwork profile and hire me via [CleanStart Project Catalog](https://www.upwork.com/services/product/development-it-cleaned-data-from-messy-spreadsheets-a-power-bi-dashboard-1957436694365644557)
 
 ---
 
